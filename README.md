@@ -29,4 +29,4 @@ https://en.wikipedia.org/wiki/Category:Sports_injuries
 https://en.wikipedia.org/wiki/Category:Dislocations,_sprains_and_strains
 
 
-University of Nebraska © [Anna Krause]()
+University of Nebraska © [Anna Krause]
